@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @SethmiDanoshi
-- 👀 I’m interested in coding
 - 🌱 I’m currently learning Information Technology and Management
 - 💞️ I’m looking to collaborate on IT Industry
 - 📫 How to reach me  
